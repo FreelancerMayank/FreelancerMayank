@@ -1,0 +1,3 @@
+- 👋 Hi, I’m Mayank Gupta
+- 👀 I’m interested in Development, Automating Tasks
+- 📫 You can reach me on freelancermayank28@gmail.com
